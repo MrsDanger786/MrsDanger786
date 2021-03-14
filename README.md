@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MrsDanger786
+- 👀 I’m interested in learning coding as im in the process of creating my own app
+- 🌱 I’m currently still learning so all help is always welcome
